@@ -2,7 +2,7 @@
 
 BIENVENIDOS A MI PERFIL
 
-<img src="https://i.chzbgr.com/thumb800/42495749/hF35DA8B7/programming-memes-for-coding-geeks.jpg" width="200">
+<img src="https://i.chzbgr.com/thumb800/42495749/hF35DA8B7/programming-memes-for-coding-geeks.jpg" width="500">
 
 ## ÍNDICE
 
