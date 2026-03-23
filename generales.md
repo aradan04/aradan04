@@ -11,4 +11,10 @@ Quisquam harum quaerat quae, voluptates consequuntur molestiae ut officiis ullam
 Error, quidem? Dolorem culpa totam provident quo vitae eaque perspiciatis ab, consequatur eveniet quia aliquam eos consequuntur nam vero rerum ratione labore. Pariatur ex doloremque quibusdam error, odit architecto temporibus.
 
 ### DATOS DE CONTACTO
-[SITIO WEB: ]()
+[_SITIO WEB:_ https://www.instagram.com/aradan_lxxir/](https://www.instagram.com/sshadowtoxic_/) 
+
+[_GIT HUB:_ https://github.com/aradan04](https://github.com/sshad0wtoxic)
+
+_CORREO:_ aradanschwartz@gmail.com
+
+_TELÉFONO:_ 5548073951
